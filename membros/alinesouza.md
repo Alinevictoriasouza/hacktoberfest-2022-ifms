@@ -10,3 +10,11 @@ Ensino médio: quase finalizado
 # Hobbies
 
 Gostos de ir à academica, adoro assistir séries, gosto de tirar um tempo para mim.
+
+# Músicas favoritas (não está em ordem)
+
+Cry Baby - The Neighbourhood
+Alie Superstar - Beyoncé
+The Hills - The Weeknd
+Starboy - The Weeknd
+Welcome Home - Radical Face
