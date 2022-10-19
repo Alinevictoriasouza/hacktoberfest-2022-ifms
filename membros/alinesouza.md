@@ -18,3 +18,12 @@ Alie Superstar - Beyoncé
 The Hills - The Weeknd
 Starboy - The Weeknd
 Welcome Home - Radical Face
+
+# Séries favoritas(algumas, pois são várias)
+
+The Vampire Diaries
+Teen Wolf
+How to Get Away With Murder
+The Bold Type
+Anne with an E
+Doces Magnólia
